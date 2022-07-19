@@ -1,1 +1,1 @@
-https://doki44.github.io/Mercedes/
+https://doki44.github.io/Tesla/
